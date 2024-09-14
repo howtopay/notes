@@ -4,7 +4,7 @@ If you ended up on this page by accident.
 Leave you will not understand any of the things I am typing save yourself the headache.
 
 
-Encrypted = base64 include base32.
+## Encrypted = base64 include base32.
 offxxxxxxKxxSx6xy snabel-a thegoodgoogle.com
 =
 yuhlci6uizeijlj26zjmqrub3e4so3rk
