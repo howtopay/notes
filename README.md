@@ -19,6 +19,8 @@ one time lazy or unavaliable =
 8417 8048
 7966 7091
 
-Recovery key:
+Recovery key authenticator not for the goodgoogle but the one linux minus the x and add a s recommends.
+
+:
 
 inmate clown cross security appear identify glass minute apple sketch frog lawn execute explain you snow walnut cigar just spot call arm loan recipe
